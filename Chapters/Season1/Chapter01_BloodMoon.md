@@ -238,3 +238,198 @@ For the first time in years—
 fear could be heard in her voice.
 
 “The threads are disappearing.”
+
+The main hall of the Tenshirō estate was already awake by the time Kairo carried Reika downstairs.
+
+Clan members moved rapidly through the corridors in controlled silence, their expressions tense beneath the crimson glow filtering through the windows.
+
+Nobody spoke louder than necessary.
+
+Fear spread quickly in houses built upon secrets.
+
+Akari stood near the center of the hall surrounded by floating translucent threads of pale blue light extending from her fingertips.
+
+Most of them had snapped.
+
+Her breathing was uneven.
+
+“That’s impossible…” she whispered.
+
+“The future lines around Tokyo are collapsing.”
+
+Kairo slowly lowered Reika into a nearby chair.
+
+“What exactly did you see?”
+
+Akari hesitated.
+
+Then—
+
+“Nothing.”
+
+The room went silent.
+
+Akari looked genuinely shaken.
+
+“I reached forward and there was just… emptiness.”
+
+A heavy presence suddenly entered the hall.
+
+Every clan member straightened instantly.
+
+Kaze Tenshirō had arrived.
+
+The patriarch moved through the silence with terrifying calm, his dark ceremonial robes flowing behind him as faint starlike particles drifted around his body.
+
+His Celestial Eye remained closed.
+
+Yet the pressure alone was overwhelming.
+
+Kaze’s gaze moved first toward Reika.
+
+The faint golden-black cracks beneath her skin had become harder to hide.
+
+His expression darkened almost imperceptibly.
+
+“…The resonance has started earlier than expected.”
+
+Reika lowered her eyes.
+
+Kairo immediately stepped forward.
+
+“She heard something.”
+
+That caught Kaze’s attention instantly.
+
+“What kind of voice?”
+
+Reika’s fingers tightened slightly.
+
+“…It sounded lonely.”
+
+For the first time—
+
+Kaze’s composure cracked.
+
+Only slightly.
+
+But Kairo noticed.
+
+Then suddenly—
+
+BOOM.
+
+The entire estate trembled violently.
+
+Several windows shattered inward at once.
+
+Outside, somewhere beyond the forest surrounding the estate grounds—
+
+a massive pillar of black light erupted into the sky beneath the blood moon.
+
+And within the darkness—
+
+something opened its eye.
+
+The pillar of black light vanished almost as quickly as it appeared.
+
+But the pressure remained.
+
+Heavy.
+Watching.
+
+The blood moon above Tokyo pulsed once like a living heartbeat.
+
+Then silence returned.
+
+No one inside the hall moved.
+
+Kaze stepped toward the shattered windows slowly, his expression unreadable as he stared into the distant darkness beyond the estate grounds.
+
+“…Seal the inner barriers,” he ordered calmly.
+
+“Immediately.”
+
+Clan members scattered at once.
+
+Akari’s floating threads trembled violently around her.
+
+“They’re getting closer…”
+
+Kairo’s eyes narrowed.
+
+“Who?”
+
+Before she could answer—
+
+the estate lights flickered.
+
+Once.
+
+Twice.
+
+Then died completely.
+
+Darkness swallowed the hall.
+
+Several younger clan members panicked instantly.
+
+A cold wind swept through the corridors.
+
+And then—
+
+footsteps.
+
+Slow.
+
+Deliberate.
+
+Coming from outside the main gate.
+
+Reika stood despite the pain still burning through her eye.
+
+“Kairo…”
+
+He already felt it too.
+
+A presence warped the air itself beyond the estate walls.
+
+Not divine.
+
+Not celestial.
+
+Broken.
+
+The sound of metal groaning echoed across the grounds.
+
+One of the outer gates slowly began opening on its own.
+
+Kaze’s voice cut through the darkness sharply.
+
+“No one leaves this hall.”
+
+But outside—
+
+a lone figure stepped through the mist beneath the blood-red sky.
+
+Tall.
+
+Black coat moving in the wind.
+
+One glowing fractured eye shining like shattered glass.
+
+Violet.
+
+A slow smile crossed his face as he looked directly toward the estate.
+
+Toward Kairo.
+
+“It’s been a while,” he said softly.
+
+The Heavenly Eye reacted instantly.
+
+Pain exploded through Kairo’s vision.
+
+For a brief moment—
+
+he saw Tokyo burning beneath a black star.
