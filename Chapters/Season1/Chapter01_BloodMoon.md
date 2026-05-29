@@ -146,3 +146,95 @@ Far above the estate, clouds slowly drifted across the blood-red moon.
 And somewhere deep beneath Tokyo—
 
 something ancient began to awaken.
+
+The tea should have been warm.
+
+But Reika’s hands were trembling.
+
+Small cracks of golden light flickered briefly beneath the skin near her wrist before disappearing again beneath her sleeve.
+
+Kairo noticed immediately.
+
+He always did.
+
+“You’re hiding it again.”
+
+“I said I’m fine.”
+
+“You almost collapsed during training yesterday.”
+
+Reika looked away.
+
+For a moment, the confident mask she wore around everyone else weakened.
+
+“…It hurts more at night now.”
+
+Silence.
+
+The wind moved gently through the trees surrounding the estate grounds far below them.
+
+Kairo finally turned toward her fully.
+
+“What did Father say?”
+
+A bitter smile crossed her face.
+
+“The same thing he always says.”
+
+Control it.
+
+Suppress it.
+
+Endure it.
+
+The Seraphic Eye was the pride of the Tenshirō Clan.
+
+But lately, it felt more like a curse.
+
+Before Kairo could respond—
+
+a sharp pulse exploded through the air.
+
+Both twins froze instantly.
+
+The world around them distorted slightly, like invisible pressure bending reality itself.
+
+Then—
+
+SCREAM.
+
+Not physical.
+
+Mental.
+
+A voice.
+
+Far away.
+Ancient.
+Broken.
+
+Reika’s cup shattered against the floor.
+
+Her hand immediately covered her right eye as golden light burst violently between her fingers.
+
+“Kgh—!”
+
+Kairo caught her before she collapsed completely.
+
+The pressure in the atmosphere intensified.
+
+Inside the estate below, lights suddenly began turning on one after another.
+
+They felt it too.
+
+From somewhere deeper within the mansion, footsteps approached rapidly.
+
+Then Akari’s voice rang out from the hallway.
+
+“Kairo!”
+
+For the first time in years—
+
+fear could be heard in her voice.
+
+“The threads are disappearing.”
