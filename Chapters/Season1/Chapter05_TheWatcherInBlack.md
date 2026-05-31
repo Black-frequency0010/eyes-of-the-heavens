@@ -499,3 +499,149 @@ But the whisper returned one final time.
 «“The Silent Heaven remembers you.”»
 
 Then the golden cracks across her body spread farther.
+
+The rain had not stopped.
+
+Night wrapped itself tightly around the estate as silence settled across the halls once again.
+
+Reika stood alone on one of the eastern balconies overlooking the distant lights of Tokyo.
+
+The city seemed smaller now.
+
+Fragile.
+
+As if one wrong decision could break everything.
+
+“You always come here when you're thinking.”
+
+Reika didn't turn around.
+
+She already recognized the voice.
+
+Kairo stepped onto the balcony beside her.
+
+For several moments neither twin spoke.
+
+The rain beyond the roofline filled the silence for them.
+
+Finally, Kairo leaned against the railing.
+
+“You didn't eat.”
+
+Reika rolled her eyes slightly.
+
+“That's what you came here to say?”
+
+“No.”
+
+A faint smile appeared briefly.
+
+Then vanished.
+
+The seriousness returned.
+
+Kairo looked toward the city.
+
+“I spoke with Father.”
+
+Reika immediately understood.
+
+The truth.
+
+Or at least part of it.
+
+“The Silent Heaven?”
+
+Kairo nodded.
+
+The wind shifted gently around them.
+
+For a while neither knew what to say.
+
+Because once certain truths were spoken—
+
+life never returned to normal.
+
+Eventually Reika broke the silence.
+
+“Do you ever wish we were ordinary?”
+
+Kairo blinked.
+
+That was not a question she asked lightly.
+
+The golden cracks beneath her sleeve pulsed faintly.
+
+Almost unnoticed.
+
+Almost.
+
+“Sometimes,” Kairo admitted.
+
+Reika laughed softly.
+
+Not because it was funny.
+
+Because it hurt.
+
+“I used to think our eyes made us special.”
+
+The smile disappeared.
+
+“Now I think they're making us disappear.”
+
+Kairo turned toward her immediately.
+
+“Reika—”
+
+“I heard something tonight.”
+
+Silence.
+
+The words hung in the air.
+
+Dangerous.
+
+Kairo's expression hardened.
+
+“What did you hear?”
+
+Reika looked away.
+
+Toward the city.
+
+Toward the rain.
+
+Toward anything except him.
+
+Because if she looked directly at her brother—
+
+she might tell him everything.
+
+The whisper.
+
+The darkness.
+
+The voice.
+
+Instead she forced a small smile.
+
+“Probably nothing.”
+
+Kairo knew she was lying.
+
+Reika knew he knew.
+
+Neither pushed further.
+
+For now.
+
+Above them, hidden beyond the clouds and rain—
+
+something watched silently.
+
+Waiting.
+
+Patient.
+
+Ancient.
