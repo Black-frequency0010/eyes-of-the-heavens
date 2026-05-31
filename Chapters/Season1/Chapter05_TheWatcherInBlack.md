@@ -644,4 +644,230 @@ Waiting.
 
 Patient.
 
+Ancient.Far beneath Tokyo—
+
+deeper than the subway tunnels.
+
+Deeper than the foundations of the city itself.
+
+A hidden chamber remained untouched by time.
+
+Ancient stone walls covered in celestial symbols surrounded a massive circular structure embedded into the earth.
+
+The seal.
+
+One of the oldest remaining restraints placed upon Ama-no-Mikaboshi after the First Fall.
+
+Cracks now spread across its surface.
+
+Slowly.
+
+Inevitably.
+
+A single figure stood before it.
+
+Zenith.
+
+The former elder watched the fractures silently while black fragments drifted around him like living shadows.
+
+He looked neither pleased nor concerned.
+
+Only certain.
+
+Behind him, several Veilbreakers waited nervously.
+
+One finally gathered enough courage to speak.
+
+“The distortions are accelerating faster than expected.”
+
+Zenith remained silent.
+
+“The Seraphic Eye awakened publicly.”
+
+Still silent.
+
+“The clan is mobilizing.”
+
+A faint smile crossed Zenith’s face.
+
+“Good.”
+
+The Veilbreakers exchanged uneasy glances.
+
+Zenith slowly raised his hand toward the fractured seal.
+
+The black star engraved at its center pulsed faintly.
+
+Like a heartbeat.
+
+“For centuries,” Zenith said quietly, “they called it containment.”
+
+His fractured Abyss Eye opened.
+
+“But cages eventually become tombs.”
+
+The chamber trembled.
+
+Dust fell from the ceiling.
+
+The cracks spread farther.
+
+Something ancient stirred beyond the seal.
+
+And for the first time in many years—
+
+Zenith bowed his head.
+
+Not in fear.
+
+In reverence.
+
+«“The heavens are opening.”»
+
+The pulse that followed spread outward beneath Tokyo.
+
+And somewhere inside the Tenshirō estate—
+
+Reika collapsed to her knees.
+
+Reika hit the floor hard.
+
+The pain arrived without warning.
+
+One moment she had been standing.
+
+The next—
+
+every nerve in her body felt like it was burning.
+
+The golden cracks beneath her skin ignited with blinding light.
+
+Servants nearby shouted in alarm.
+
+Footsteps rushed toward her.
+
+But their voices sounded distant.
+
+Muted.
+
+As though she were sinking beneath deep water.
+
+“Reika!”
+
+Kairo's voice.
+
+Far away.
+
+The world around her dissolved.
+
+Darkness swallowed everything.
+
+Then—
+
+silence.
+
+No pain.
+
+No sound.
+
+No sky.
+
+No ground.
+
+Only endless blackness stretching in every direction.
+
+Reika slowly rose to her feet.
+
+“Where am I...?”
+
+Her voice echoed strangely.
+
+The darkness responded.
+
+Not with words.
+
+With presence.
+
 Ancient.
+
+Immense.
+
+Watching.
+
+Then she saw it.
+
+Far away—
+
+a single black star hanging within the void.
+
+Its light felt wrong.
+
+Older than time.
+
+Older than memory.
+
+And beneath it stood a silhouette.
+
+Humanoid.
+
+Motionless.
+
+Waiting.
+
+Reika's heartbeat accelerated.
+
+The figure slowly lifted its head.
+
+Two burning eyes opened.
+
+And a voice filled the darkness.
+
+Not spoken.
+
+Felt.
+
+«“At last.”»
+
+The void trembled.
+
+The black star pulsed once.
+
+«“I have found you.”»
+
+Reika froze.
+
+The presence felt familiar.
+
+Terrifyingly familiar.
+
+As though part of her had always known it.
+
+The voice spoke again.
+
+«“Little Seraph.”»
+
+«“Do you remember me?”»
+
+Then the darkness shattered.
+
+Reika's eyes opened violently.
+
+She gasped for breath.
+
+Back inside the estate.
+
+Back in reality.
+
+Kairo knelt beside her.
+
+Fear visible on his face.
+
+For several seconds she could not speak.
+
+Could not move.
+
+Could only stare upward.
+
+Because she now knew one thing with absolute certainty.
+
+Something inside the darkness knew her name.
