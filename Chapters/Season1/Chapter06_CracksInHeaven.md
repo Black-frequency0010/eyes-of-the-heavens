@@ -494,4 +494,474 @@ Far above them—
 
 the silver fracture widened another fraction of an inch.
 
+Reika had stopped sleeping.
+
+At least—
+
+truly sleeping.
+
+Every time she closed her eyes, the darkness returned.
+
+The black star.
+
+The endless void.
+
+The voice.
+
+Always waiting.
+
+Always watching.
+
+She sat quietly inside the estate library long after midnight, surrounded by ancient books she wasn't actually reading.
+
+The pages blurred together.
+
+Her thoughts never did.
+
+The golden cracks beneath her skin had spread farther again.
+
+She kept them hidden beneath long sleeves.
+
+For now.
+
+A soft sound came from the doorway.
+
+Kairo.
+
+Of course.
+
+Reika almost smiled.
+
+Almost.
+
+“You should be asleep.”
+
+Kairo leaned against the doorframe.
+
+“So should you.”
+
+Neither believed the other.
+
+For a moment, silence settled between them.
+
+Comfortable.
+
+Familiar.
+
+Then Kairo spoke.
+
+“You haven't been okay since the collapse.”
+
+The words landed harder than he intended.
+
+Because they were true.
+
+Reika looked down.
+
+“You make it sound like that's new.”
+
+Kairo didn't smile.
+
+That worried her immediately.
+
+He stepped farther into the room.
+
+“Something happened.”
+
+Not a question.
+
+A statement.
+
+A brother's certainty.
+
+Reika stared at the table.
+
+At her hands.
+
+At anything except him.
+
+Because if she looked directly at Kairo—
+
+she might tell him everything.
+
+The voice.
+
+The star.
+
+The thing waiting beyond the darkness.
+
+Instead she chose a smaller truth.
+
+The safest truth.
+
+“I hear things sometimes.”
+
+Silence.
+
+Kairo's expression changed instantly.
+
+Not fear.
+
+Concern.
+
+“What kind of things?”
+
+Reika swallowed.
+
+Her throat suddenly felt dry.
+
+“Whispers.”
+
+The word barely escaped her lips.
+
+The library seemed colder afterward.
+
+Kairo remained silent.
+
+Listening.
+
+Waiting.
+
+Reika forced herself to continue.
+
+“Sometimes it's just my name.”
+
+She laughed weakly.
+
+A broken sound.
+
+“Sometimes it feels like something is trying to remember me.”
+
+The moment the words left her mouth—
+
+the candles throughout the library flickered.
+
+Every flame bent in the same direction.
+
+Toward her.
+
+Neither twin spoke.
+
+Because deep down—
+
+both of them knew that wasn't normal.
+
+Far beneath the city—
+
+the Veilbreakers were celebrating.
+
+Not loudly.
+
+Not recklessly.
+
+With certainty.
+
+The hidden chamber beneath Tokyo pulsed with faint black light as more fractures spread across the ancient seal embedded into the earth.
+
+Zenith stood before it in silence.
+
+Watching.
+
+Waiting.
+
+Listening.
+
+One of the Veilbreakers approached carefully.
+
+“The celestial fracture has appeared.”
+
+Zenith nodded.
+
+“The first one.”
+
+“The clan has noticed.”
+
+A faint smile touched his face.
+
+“They were always going to notice.”
+
+The Veilbreaker hesitated.
+
+Then asked the question none of them truly understood.
+
+“Why now?”
+
+The chamber fell silent.
+
+Zenith looked toward the fractured seal.
+
+Toward the darkness beyond it.
+
+For a long moment he said nothing.
+
+Then—
+
+“Because the prison is waking up.”
+
+The air itself seemed to grow heavier.
+
+Even the Veilbreakers stepped back instinctively.
+
+Zenith's fractured Abyss Eye opened slowly.
+
+Black light spread through the chamber.
+
+“History remembers the Celestial Eyes as blessings.”
+
+His voice remained calm.
+
+Measured.
+
+“But history was written by the jailers.”
+
+The seal pulsed.
+
+A deep sound echoed from somewhere beyond reality.
+
+Like a heartbeat.
+
+Ancient.
+
+Impossible.
+
+Zenith lowered his gaze.
+
+“For the first time in centuries…”
+
+The black fractures spread farther.
+
+“…the prisoner remembers its name.”
+
+Far above them—
+
+the silver crack in the sky widened again.
+
+The fracture appeared at 11:43 PM.
+
+This time—
+
+everyone saw it.
+
+At first, people thought it was lightning.
+
+A thin silver line spreading across the night sky above Tokyo.
+
+Then it kept growing.
+
+And growing.
+
+And growing.
+
+News helicopters captured it live.
+
+Millions watched from their homes.
+
+Millions more stood outside staring upward.
+
+The line stretched across the heavens like a crack spreading through glass.
+
+Phones recorded it.
+
+Telescopes tracked it.
+
+Scientists panicked.
+
+Nobody could explain it.
+
+Inside the Tenshirō estate, every alarm activated simultaneously.
+
+Clan members rushed through the halls.
+
+Barrier systems flared to life.
+
+Ancient seals hidden beneath the estate began glowing for the first time in decades.
+
+Kairo and Reika emerged onto the highest observation platform together.
+
+The moment they saw the sky—
+
+both froze.
+
+The fracture now stretched from horizon to horizon.
+
+Silver light poured through it.
+
+Not outward.
+
+Inward.
+
+As though something beyond reality was looking through the opening.
+
+Akari arrived moments later, breathing heavily.
+
+Her future threads had become completely unstable.
+
+“I can't see past tomorrow.”
+
+Silence.
+
+That statement terrified everyone present.
+
+Because Akari had always been able to see farther than that.
+
+Always.
+
+Then—
+
+the fracture moved.
+
+Not widened.
+
+Moved.
+
+Like a living thing.
+
+A ripple passed across the entire crack.
+
+The sky shuddered.
+
+And for one brief moment—
+
+every person looking upward saw the same thing.
+
+An enormous shadow passing behind the fracture.
+
+Watching.
+
+The vision lasted less than a second.
+
+Then it vanished.
+
+But the damage was done.
+
+Because now the entire world knew:
+
+Something existed on the other side.
+
+The world did not sleep that night.
+
+Every news channel replayed the footage endlessly.
+
+Every government agency entered emergency session.
+
+Every observatory on Earth pointed its instruments toward the fracture.
+
+And none of them found answers.
+
+Only more questions.
+
+Inside the Tenshirō estate, the atmosphere had become suffocating.
+
+No one spoke above a whisper.
+
+No one pretended things were normal anymore.
+
+Because normal had ended.
+
+Kairo stood alone on the observation platform long after everyone else had left.
+
+The silver fracture still stretched across the heavens.
+
+Silent.
+
+Watching.
+
+Waiting.
+
+Then he heard footsteps.
+
+Reika.
+
+She stopped beside him.
+
+For a while neither twin spoke.
+
+The city lights flickered beneath them.
+
+The fractured sky loomed above them.
+
+Then Reika quietly asked:
+
+“Do you think it saw us?”
+
+Kairo looked upward.
+
+The question sounded ridiculous.
+
+Impossible.
+
+And yet—
+
+after what they had witnessed—
+
+he could not honestly say no.
+
+Before he could answer—
+
+pain exploded through Reika's body.
+
+She collapsed instantly.
+
+Golden light erupted beneath her skin.
+
+The cracks spread violently across her arms and neck.
+
+Kairo caught her before she hit the ground.
+
+“Reika!”
+
+The sky responded.
+
+The silver fracture pulsed.
+
+Once.
+
+Twice.
+
+Then a third time.
+
+As though reacting to her.
+
+Reika's eyes opened.
+
+But for a brief moment—
+
+they were not her eyes.
+
+A vast black star reflected within them.
+
+Ancient.
+
+Endless.
+
+Hungry.
+
+And a voice echoed across her mind.
+
+Clearer than ever before.
+
+«“The gate remembers.”»
+
+The world seemed to stop.
+
+Then came the second message.
+
+One that chilled her more than anything before.
+
+«“The others are coming.”»
+
+The vision ended instantly.
+
+The golden light vanished.
+
+The cracks stopped spreading.
+
+And Reika fell unconscious in Kairo's arms.
+
+Far above them—
+
+the fracture widened.
+
+Just a little more.
+
  
